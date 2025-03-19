@@ -1,7 +1,7 @@
 # Claire O'Brien
 ## Ecologist 
 
-![Claire carrying a big backpack through the tundra](WhatsApp Image3.JPG)
+![Claire carrying a big backpack through the tundra](WhatsAppImage3.JPG)
 
 BSc from the University of British Columbia
 MSc from Wilfrid Laurier University
